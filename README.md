@@ -23,4 +23,4 @@ Example routes:
 
 ## Author 👨‍💻
 - **Rahul Johari**
-- [LinkedIn](https://www.linkedin.com/in/rahuljohari005/)
+- [LinkedIn](http://www.Linkdin.com/in/rahul-johari-b2352b147/)
